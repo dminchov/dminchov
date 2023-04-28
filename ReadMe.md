@@ -1,5 +1,5 @@
 # 💫 I'm Daiba C. Minchov
-😄 Pronouns: He/Him<br>🔭 I’m currently a Web dev Student at College Ahuntsic.<br>🌱 I’m currently in COOP program for looking for internship.<br>💬 Ask me about anything to know more.<br>📫 How to reach me: Check social links below.
+😄 Pronouns: He/Him<br>🔭 I’m currently a Web dev Student at College Ahuntsic.<br>🌱 I’m currently in COOP program looking for internship.<br>💬 Ask me about anything to know more.<br>📫 How to reach me: Check social links below.
 
 
 ## 🌐 Socials:
